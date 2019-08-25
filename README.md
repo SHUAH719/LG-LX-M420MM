@@ -1,0 +1,2 @@
+# LG-LX-M420MM
+MetroPCS Lg K40
